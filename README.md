@@ -15,7 +15,7 @@
 
 
             <a href="https://rentry.co/g0ds-d1scip1e"><img width="170" height="170" alt="Screenshot_2026-10-27-18-28-06-501_com alightcreative motion-edit-removebg-preview" src="https://github.com/user-attachments/assets/ed21ff8f-7d05-4b6e-ab86-3efd3ce2292f" />
-       <a href="https://pronouns.cc/@DesiredDreams"><img width="170" height="170" alt="Screenshot_2026-10-27-18-32-22-336_com alightcreative motion-edit-removebg-preview" src="https://github.com/user-attachments/assets/d1ee2ccb-6052-4da9-b3fc-592e6b05b1f9" />
+       <a href="https://pronouns.cc/@rottenwxsh"><img width="170" height="170" alt="Screenshot_2026-10-27-18-32-22-336_com alightcreative motion-edit-removebg-preview" src="https://github.com/user-attachments/assets/d1ee2ccb-6052-4da9-b3fc-592e6b05b1f9" />
       <a href="https://glorified.atabook.org/"><img width="170" height="170" alt="Screenshot_2026-10-27-18-28-45-264_com alightcreative motion-edit-removebg-preview (1)" src="https://github.com/user-attachments/assets/f7e749d0-c845-413a-97d6-9df27e9ca126" />
 
 
