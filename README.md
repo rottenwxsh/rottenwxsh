@@ -5,7 +5,8 @@
            ![views](https://komarev.com/ghpvc/?username=ze&label=Proxies&color=38183f&style=plastic&abbreviated=true)
 
 
-                        <img width="420" height="420" alt="Untitled101_20261013194920" src="https://github.com/user-attachments/assets/2e27655b-f443-4736-9c0f-1ebb62e29893" />
+                        <img width="528" height="473" alt="Screenshot_2026-10-27-17-23-31-065_com alightcreative motion-edit-removebg-preview" src="https://github.com/user-attachments/assets/7fb99c1d-1941-4ba9-b529-17c68d1f8b30" />
+
 
 
 
