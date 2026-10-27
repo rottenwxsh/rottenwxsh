@@ -17,7 +17,10 @@
 </p>  
   <img src="https://readme-typing-svg.demolab.com/?lines=All+i+want+is+you..+yeah,+you!;&font=GentleHearts%20Code&center=true&width=500&height=50&duration=4000&pause=1000&color=d34951" alt="Example Usage - Me">
 
-            <a href="https://rentry.co/g0ds-d1scip1e"><img width="170" height="170" alt="Untitled93_20260812022957" src="https://github.com/user-attachments/assets/0f05501a-e217-4752-b069-9f3144973e05" />       <a href="https://glorified.atabook.org/"><img width="170" height="170" alt="Untitled93_20260812023104" src="https://github.com/user-attachments/assets/75161dcb-7ffe-4db5-b1ca-fa2433ae6f3d" />       <a href="https://pronouns.cc/@DesiredDreams"><img width="170" height="170" alt="Untitled93_20260812023203" src="https://github.com/user-attachments/assets/ec525c13-eac7-4748-890e-ffd4ea360af2" />
+            <a href="https://rentry.co/g0ds-d1scip1e"><img width="170" height="170" alt="Screenshot_2026-10-27-18-28-06-501_com alightcreative motion-edit-removebg-preview" src="https://github.com/user-attachments/assets/ed21ff8f-7d05-4b6e-ab86-3efd3ce2292f" />
+       <a href="https://pronouns.cc/@DesiredDreams"><img width="170" height="170" alt="Screenshot_2026-10-27-18-32-22-336_com alightcreative motion-edit-removebg-preview" src="https://github.com/user-attachments/assets/d1ee2ccb-6052-4da9-b3fc-592e6b05b1f9" />
+      <a href="https://glorified.atabook.org/"><img width="170" height="170" alt="Screenshot_2026-10-27-18-28-45-264_com alightcreative motion-edit-removebg-preview (1)" src="https://github.com/user-attachments/assets/f7e749d0-c845-413a-97d6-9df27e9ca126" />
+
 
 
 
