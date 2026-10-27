@@ -12,7 +12,7 @@
 
 
 </p>
-<p aling="center">$${\color{#735675} Art \space crds \space : \space @ VENNro0 \space on \space X \space .  }$$ 
+<p aling="center">$${\color{#735675} Art \space crds \space : \space @ Photosintheesys \space on \space X \space .  }$$ 
 
             <a href="https://rentry.co/g0ds-d1scip1e"><img width="170" height="170" alt="Untitled93_20260812022957" src="https://github.com/user-attachments/assets/0f05501a-e217-4752-b069-9f3144973e05" />       <a href="https://glorified.atabook.org/"><img width="170" height="170" alt="Untitled93_20260812023104" src="https://github.com/user-attachments/assets/75161dcb-7ffe-4db5-b1ca-fa2433ae6f3d" />       <a href="https://pronouns.cc/@DesiredDreams"><img width="170" height="170" alt="Untitled93_20260812023203" src="https://github.com/user-attachments/assets/ec525c13-eac7-4748-890e-ffd4ea360af2" />
 
