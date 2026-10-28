@@ -28,7 +28,7 @@
 
  
              ㅤ
-My keyboard is ass my keys are out of place n unuseable so expe(t me to type /i|<e THIS. ok?
+My keyboard is ass my keys are out of place n unusable so expe(t me to type /i|<e THIS. ok?
 I use ( as c . / as L . |< as k . ! as j . i copy and paste my d and dont use my f at all 
                                                  
                                                    
