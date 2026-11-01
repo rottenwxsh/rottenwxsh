@@ -1,15 +1,16 @@
 </p>                                                                     
-       <img src="https://readme-typing-svg.demolab.com/?lines=kiss+me..+kiss+me+with+your+eyes+closed,;whisper+that+your+heart+shows...;&font=GentleHearts%20Code&center=true&width=500&height=50&duration=4000&pause=1000&color=d34951" alt="Example Usage - Me">
+       <img src="https://readme-typing-svg.demolab.com/?lines=kiss+me..+kiss+me+with+your+eyes+closed,;whisper+that+your+heart+shows...;&font=GentleHearts%20Code&center=true&width=500&height=50&duration=4000&pause=1000&color=a85865" alt="Example Usage - Me">
 
 ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-           ![views](https://komarev.com/ghpvc/?username=ze&label=Berries&color=d34951&style=plastic&abbreviated=true)
+           ![views](https://komarev.com/ghpvc/?username=ze&label=Kidnapped&color=382350&style=plastic&abbreviated=true)
 
 
-                        <img width="528" height="473" alt="Screenshot_2026-10-27-17-23-31-065_com alightcreative motion-edit-removebg-preview" src="https://github.com/user-attachments/assets/7fb99c1d-1941-4ba9-b529-17c68d1f8b30" />
+                        <img width="572" height="582" alt="Untitled109_20261101203801" src="https://github.com/user-attachments/assets/09fe5edd-edac-4e5d-bece-ee9be89d6983" />
+
 
 
 </p>
-<p aling="center">$${\color{#d34951} Art \space crds \space : \space @ Photosintheesys \space on \space X \space .  }$$ 
+<p aling="center">$${\color{#6d406e} Art \space crds \space : \space @ VENNro0  \space on \space X \space .  }$$ 
 
 
 
@@ -21,7 +22,7 @@
 
 
 </p>  
-  <img src="https://readme-typing-svg.demolab.com/?lines=All+i+want+is+you..+yeah,+you!;&font=GentleHearts%20Code&center=true&width=500&height=50&duration=4000&pause=1000&color=d34951" alt="Example Usage - Me">
+  <img src="https://readme-typing-svg.demolab.com/?lines=All+i+want+is+you..+yeah,+you!;&font=GentleHearts%20Code&center=true&width=500&height=50&duration=4000&pause=1000&color=b05a63" alt="Example Usage - Me">
 
 
 
