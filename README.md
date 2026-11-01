@@ -15,9 +15,9 @@
 
 
 
-            <a href="https://rentry.co/tickedout-smoke"><img width="170" height="170" alt="Screenshot_2026-10-27-18-28-06-501_com alightcreative motion-edit-removebg-preview" src="https://github.com/user-attachments/assets/ed21ff8f-7d05-4b6e-ab86-3efd3ce2292f" />
-       <a href="https://pronouns.cc/@rottenwxsh"><img width="170" height="170" alt="Screenshot_2026-10-27-18-32-22-336_com alightcreative motion-edit-removebg-preview" src="https://github.com/user-attachments/assets/d1ee2ccb-6052-4da9-b3fc-592e6b05b1f9" />
-      <a href="https://glorified.atabook.org/"><img width="170" height="170" alt="Screenshot_2026-10-27-18-28-45-264_com alightcreative motion-edit-removebg-preview (1)" src="https://github.com/user-attachments/assets/f7e749d0-c845-413a-97d6-9df27e9ca126" />
+            <a href="https://rentry.co/tickedout-smoke"><img width="180" height="180" alt="Untitled109_20261101210045" src="https://github.com/user-attachments/assets/0d60d1f4-c924-472b-aa36-819d06770cae" />
+      <a href="https://pronouns.cc/@rottenwxsh"><img width="170" height="170" alt="Untitled109_20261101204933" src="https://github.com/user-attachments/assets/ba06407d-fe37-40a5-9596-38cf0fe12e4c" />
+     <a href="https://glorified.atabook.org/"><img width="170" height="170" alt="Untitled109_20261101210233" src="https://github.com/user-attachments/assets/3cb0b561-4857-4e36-a3fa-4c828a6a4bed" />
 
 
 
